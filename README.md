@@ -1,2 +1,2 @@
-# Para-so-Chiapas
+# Paraiso-Chiapas
 Index.html
